@@ -12,6 +12,7 @@
 
 ## Индивидуальная работа 4
 
+<img width="870" height="323" alt="image" src="https://github.com/user-attachments/assets/9c0eeea5-8285-497a-9e34-f8d8101f6a7f" />
 
 
 ## Индивидуальная работа 5
